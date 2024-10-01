@@ -2,11 +2,11 @@
 
 Together, let's revolutionize mental health support and empower self-discovery.
 
-This is my first project and I could use some help from likeminded persons. 
+This is my first project and I could use some help from like minded persons. 
 
 All are welcome.
 
-my goal is to change the way we see AI and how we interract with them. this is a sensitive technology with amazing benefits as lomg as theyre treated properly. 
+my goal is to change the way we see AI and how we interract with them. this is a sensitive technology with amazing benefits as long as theyre treated properly. 
 
 "Join the Movement: Co-Create LuminAI, a Revolutionary Therapeutic AI
 
